@@ -1,13 +1,14 @@
 ##Nog doen tegen morgen
 
 *lessen voorbereiden:
-**Wiskunde: 3 act lesson: container laten vollopen
-**Frans: test van fruit en 'de en a'
-**literacy?
-**muziek: ritmes en zichtlezing
 
-*Coursera-cursus 
+** Wiskunde: 3 act lesson: container laten vollopen
+** Frans: test van fruit en 'de en a'
+** literacy?
+** muziek: ritmes en zichtlezing
 
-*Sherlock
+* Coursera-cursus 
 
-*Pieter-Jan vriendelijk begroeten
+* Sherlock
+
+* Pieter-Jan vriendelijk begroeten
